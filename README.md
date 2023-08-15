@@ -1,1 +1,1 @@
-- 📫 How to reach me $Enabled#0021 (Discord)
+- 📫 How to reach me enabl3d (Discord)
